@@ -9,7 +9,7 @@
 - 💬 Ask me **something interesting**
 - 📫 How to reach me: **Anywhere you find me** 😉
 - 😄 Pronouns: **he**/**him**/**Daddy**
-- ⚡ Fun fact: I live on **caffeine** and **mweb-novels*
+- ⚡ Fun fact: I live on **caffeine** and **web-novels**
 
 
 <br>
